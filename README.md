@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **ysrana150@gmail.com.com** For Collaboration/Project or An
 - 🌱 **I’m currently learning:** Python
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** ysrana150@gmail.com
-- 😄 **Pronouns:** Yogendra
+- 😄 **Pronouns:** Rana
 - ⚡ **Fun fact:** I Love Data and Data Love Me
 
 
